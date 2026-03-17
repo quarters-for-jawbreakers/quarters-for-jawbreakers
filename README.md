@@ -1,1 +1,1 @@
-<p align='center'> Eddy ! Introject (Ed Edd n Eddy) </br> He/Him & Tmale . Disabled</br> Small SYS - 3 Alters</br>FICTIVE HEAVY</br> C*H ALWAYS </p>
+<p align='center'> Eddy ! IRL/DA (Ed Edd n Eddy) </br> He/Him & Tmale . Disabled</br>Double D <3</br> C*H ALWAYS </p>

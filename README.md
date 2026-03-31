@@ -1,1 +1,1 @@
-<p align='center'>Gorehound . HoundBone Collective</br>DID SYS in professional care</br> <a href='https://pluralkit.xyz/s/ostcjp?nc=y'> PUBLIC SYS INFO </a></br> Artist *drools*<br> <a href='https://gorehxund-artcomms.straw.page'> art comms open </a></p>
+<p align='center'>iPup Data</br>DID SYS in professional care</br> <a href='https://pluralkit.xyz/s/ostcjp?nc=y'> PUBLIC SYS INFO </a></br> Artist *drools*<br> <a href='https://gorehxund-artcomms.straw.page'> art comms open </a></p>

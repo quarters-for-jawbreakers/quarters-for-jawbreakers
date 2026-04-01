@@ -1,1 +1,1 @@
-<p align='center'>poltergeist / lucifer </br>DID SYS in professional care</br> <a href='https://pluralkit.xyz/s/ostcjp?nc=y'> PUBLIC SYS INFO </a></br> artist <br> <a href='https://poltergeist-artcomms.straw.page'> art comms open </a></p>
+<p align='center'>poltergeist / lucifer </br>DID SYS in professional care</br> <a href='https://pluralkit.xyz/f/ostcjp?c=f&nc=y'> currently fronting </a></br> artist <br> <a href='https://poltergeist-artcomms.straw.page'> art comms open </a></p>
